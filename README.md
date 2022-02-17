@@ -37,7 +37,7 @@ cd 2022
 Is
 python2 2022.py
 
-User.riazkhan
-Password
+
+
 
 t.me/ŠĤÀĤŴĂĤÏĐ_hack0785
